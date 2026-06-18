@@ -1,6 +1,6 @@
 ## -ˏˋSalutations!ˊˎ- 
 
-I "play" this game to Role-Play, if you talk to me, then I will reply unto thou in character, but be not afraid! Yhuŋeth is a sweetheart (typically). 
+I "play" this game to Role-Play, if you talk to me, then I will reply unto thou in character, howbeit if we talk through whispers, then I speak through the lense of Me. 
 
 Mojority of the time whilst I've this game open, tis in the background whilst I am drawing or producing music. I may reply late, but If I have the game open then it's because i want to talk to someone, so Please do not hesitate to say hi! I don't bite :3 (has the capacity to lick though-)
 
