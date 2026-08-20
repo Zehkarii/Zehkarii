@@ -1,6 +1,6 @@
 ## -ˏˋSalutations!ˊˎ- 
 
-I "play" this game in the pursuit of Role-Play, if thou decide to speak unto me; then I will reply unto thou in character (which character is rather inconsistent, and not inherently tied unto mine pony), howbeit I do tend so speak more normally whilst whispering
+I tend to behave in drastically inconsistent ways; Sometimes highly Bonhomie and Coquettish, Other times quite bilious and irritable (always with playful intent though) Howbeit the one constant throughout all is that I enjoy to speak though Abstruse and obscure ways. I'm more then happy to simplify, and I of course hath the CAPACITY to speak normal, But if my Piffle and archaic way of speaking is not your thing, then I'm probably Not the Fox for you (˶ᵔ ᵕ ᵔ˶)💧
 
 Majority of the time whilst I've this game open, tis in the background whilst I am drawing or producing music. I may reply late, but If I've the game open; then it's because I have some kind of desire to interact with someone, so Please do not hesitate to say hi! I don't bite :3 (has the capacity to lick though-)
 
