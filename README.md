@@ -1,8 +1,8 @@
 ## -ˏˋSalutations!ˊˎ- 
 
-I "play" this game to Role-Play, if you talk to me, then I will reply unto thou in character, howbeit if we talk through whispers, then I speak through the lense of Me. 
+I "play" this game in the pursuit of Role-Play, if thou decide to speak unto me; then I will reply unto thou in character (which character is rather inconsistent, and not inherently tied unto mine pony), howbeit I do tend so speak more normally whilst whispering
 
-Mojority of the time whilst I've this game open, tis in the background whilst I am drawing or producing music. I may reply late, but If I have the game open then it's because i want to talk to someone, so Please do not hesitate to say hi! I don't bite :3 (has the capacity to lick though-)
+Majority of the time whilst I've this game open, tis in the background whilst I am drawing or producing music. I may reply late, but If I've the game open; then it's because I have some kind of desire to interact with someone, so Please do not hesitate to say hi! I don't bite :3 (has the capacity to lick though-)
 
 <!--
 **Zehkarii/Zehkarii** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
